@@ -1,0 +1,1 @@
+# PowerBI_Forggith-Pharmaceuticals-Sales-and-Marketing-Analysis
